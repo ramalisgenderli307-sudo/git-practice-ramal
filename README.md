@@ -1,0 +1,1 @@
+# Git Practice Layihesi - Ramal
